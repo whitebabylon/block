@@ -1,0 +1,1 @@
+Copy right Tim Klinger. Feel free to use anything you see, put my name somewhere in the comments. Shout out to my Professor who has taught me well, Robert Barone. Thanks for everything.
